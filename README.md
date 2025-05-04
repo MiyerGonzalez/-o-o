@@ -1,6 +1,5 @@
 # -o-o
 
-hi bitches!
+hi partners!
 
-putrefact here,i like smoke two joins in the morning
-i have green crack on the moonand find them far superior to og kush
+i'm here,i would like invite you to contact for developing projecs
